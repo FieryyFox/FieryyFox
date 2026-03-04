@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=FieryyFox&style=platic-square&label=stalkers) 
+![](https://komarev.com/ghpvc/?username=FieryyFox&style=plastic-square&colof=yellow&label=stalkers) 
 
 
 ⟢ I'm fennekin!! 
