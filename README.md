@@ -1,3 +1,6 @@
+![](https://komarev.com/ghpvc/?username=FieryyFox&style=platic-square&label=stalkers) 
+
+
 ⟢ I'm fennekin!! 
 
 ⟢ asexual & singel 🥺
