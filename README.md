@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=FieryyFox&color=yellow&style=plastic&label=stalkers) 
 
 
-⟢ I'm fennekin!! 
+⟢ I'm a fennekin kin !!
 
 ⟢ minor 
 
